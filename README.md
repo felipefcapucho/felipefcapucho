@@ -1,4 +1,4 @@
-## fala tiiiiiiiiiiiiiiiiiiiiiiiiiiiii 🤪
+## IGOR CORNO, ME PAGUE OQUE VC ME DEVE
 
 Meu nome é Felipe
 
